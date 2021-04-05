@@ -1,0 +1,4 @@
+Heat oil in a wok or pan. Keep the flame to medium-low or medium. This flame range will depend on the heaviness of the pan. For a heavy pan, keep medium flame and for a less heavy pan, use a medium-low flame. The oil should have a medium-low heat or having a temperature of 130 to 135 degrees celsius.
+Now add the potatoes in the oil. You can fry in two to three batches. I fried in two batches. Do not over crowd the wok (kadai) or pan.
+Stir often while frying them for uniform cooking.
+Fry till the potatoes get cooked, but they should not brown from outside. They should just get a crust from outside without any major color change. Light browning of the edges is fine. Remove with a slotted spoon.
